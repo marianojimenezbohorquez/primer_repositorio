@@ -1,2 +1,2 @@
 # primer_repositorio
-rgawfbuewdgiyfagfuioesgr7d
+no entiendo nada
